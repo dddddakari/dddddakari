@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Derek :)!
+- 👀 I’m interested in Sonic themed media and programming
+- 🌱 I’m currently learning several programming languages
+- 📫 How to reach me dddddakari@gmail.com
+- 😄 Pronouns: He/They
