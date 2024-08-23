@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Derek :)!
+- 👋 Hi, I’m Dakari or Derek :)!
 - 👀 I’m interested in Sonic themed media and programming
 - 🌱 I’m currently learning several programming languages
 - 📫 How to reach me dakari.ap.sow@gmail.com
